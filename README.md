@@ -2,7 +2,7 @@ Welcome to the world of JILI 178. Whether you are looking for sports betting, on
 
 You can play your favorite casino games in a safe environment with the best user experience. From baccarat to roulette and craps, we offer casino games that you can play on desktop and mobile devices.
 
-The game requires you to earn online lotto games more money from the online slot games, which are a popular casino game for people all over the world. This is because it is a game that requires only a small amount of money to place a bet.
+The game requires you to earn online lotto games more money <a href="https://www.jiliwin.com/">lotto game</a> from the online slot games, which are a popular casino game for people all over the world. This is because it is a game that requires only a small amount of money to place a bet.
 
 
 
